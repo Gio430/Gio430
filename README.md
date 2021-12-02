@@ -1,0 +1,5 @@
+- Hi, I’m @Gio430
+- I’m interested in learning to code and learning the Godot engine 
+- I’m currently learning python
+- I’m looking to collaborate on nothing atm
+- Reach me on discord @Gio!#9260
